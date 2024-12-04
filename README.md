@@ -1,3 +1,4 @@
+
 ![2024_12_04_0t4_Kleki](https://github.com/user-attachments/assets/48fa6f31-c93e-4329-a87a-f6111e60c2ff)
 ![YgIeNNV-ezgif com-overlay](https://github.com/user-attachments/assets/db6db123-b309-47a4-85e3-a04978fdf0e7)
 ![2024_12_04_0t6_Kleki](https://github.com/user-attachments/assets/12dddc1b-a77c-49dd-b79e-1a1b2ba83157)
@@ -74,3 +75,5 @@
 
 ![2024_12_04_0t6_Kleki](https://github.com/user-attachments/assets/12dddc1b-a77c-49dd-b79e-1a1b2ba83157)
 ![2aa752c862d0a2f8667d3540689f48881-ezgif com-overlay](https://github.com/user-attachments/assets/09dbfec8-093c-4b49-b45a-23c6c0c3e04b)
+
+![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=kriss0mwahh) !!!
