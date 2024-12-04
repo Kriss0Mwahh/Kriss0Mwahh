@@ -73,7 +73,6 @@
 
 ! [𝗶𝗻𝘀𝘁𝗮𝗴𝗿𝗮𝗺](https://www.instagram.com/kriss0mwahh/)
 
-![2aa752c862d0a2f8667d3540689f48881-ezgif com-overlay](https://github.com/user-attachments/assets/09dbfec8-093c-4b49-b45a-23c6c0c3e04b)
 ![2024_12_04_0t6_Kleki](https://github.com/user-attachments/assets/12dddc1b-a77c-49dd-b79e-1a1b2ba83157)
 
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=kriss0mwahh) !!!
