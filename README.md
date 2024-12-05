@@ -73,6 +73,5 @@
 
 ! [𝗶𝗻𝘀𝘁𝗮𝗴𝗿𝗮𝗺](https://www.instagram.com/kriss0mwahh/)
 
-![2024_12_04_0t6_Kleki](https://github.com/user-attachments/assets/12dddc1b-a77c-49dd-b79e-1a1b2ba83157)
 
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=kriss0mwahh) !!!
