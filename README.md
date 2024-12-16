@@ -8,7 +8,7 @@
 
 
 
-! I go by KRIS or POWER 
+! I go by KRIS or HEIDI 
 
 ! Off-tab majority of the time.. dont kill me
 
@@ -72,7 +72,7 @@
 
 ! [𝗴𝘂𝗲𝘀𝘁𝗯𝗼𝗼𝗸](https://kriss0mwahh.atabook.org/)
 
-! [𝘀𝘁𝗿𝗮𝘄𝗽𝗮𝗴𝗲](https://krissypoo.straw.page/)
+! [𝘀𝘁𝗿𝗮𝘄𝗽𝗮𝗴𝗲](https://kriss0mwahh.straw.page/)
 
 ! [𝘀𝗽𝗼𝘁𝗶𝗳𝘆](https://open.spotify.com/user/unt6s436jwrn1wpacted7x9az)
 
