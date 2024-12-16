@@ -82,3 +82,6 @@
 
 
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=kriss0mwahh) !!!
+
+![2024_12_15_0x7_Kleki](https://github.com/user-attachments/assets/f859a5cd-b890-402f-bb41-2e6f886569ef)
+
