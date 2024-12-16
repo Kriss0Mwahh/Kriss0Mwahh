@@ -1,8 +1,12 @@
 
-![2024_12_04_0t4_Kleki](https://github.com/user-attachments/assets/48fa6f31-c93e-4329-a87a-f6111e60c2ff)
-![YgIeNNV-ezgif com-overlay](https://github.com/user-attachments/assets/db6db123-b309-47a4-85e3-a04978fdf0e7)
+![2024_12_15_0wx_Kleki](https://github.com/user-attachments/assets/9c167f98-b3da-4923-b06a-72cbcc232635)
+
+![bec311ea59257ad0da22c5d8b3033c0e-ezgif com-overlay (1)](https://github.com/user-attachments/assets/9abac5cd-245a-49cf-8221-437a22d72c51)
+
 ![2024_12_04_0t6_Kleki](https://github.com/user-attachments/assets/12dddc1b-a77c-49dd-b79e-1a1b2ba83157)
-![2024_12_04_0t5_Kleki](https://github.com/user-attachments/assets/404c73a4-facd-4e81-be43-637dc743a021)
+![2024_12_15_0x5_Kleki](https://github.com/user-attachments/assets/384da594-cfd7-45db-9a8b-5817f789bab0)
+
+
 
 ! I go by KRIS or POWER 
 
@@ -15,7 +19,8 @@
 ! Horrible at replying :heart_emoji: 
 
 ![2024_12_04_0t6_Kleki](https://github.com/user-attachments/assets/70e4ca54-0af3-40e7-b41f-2a006fa1a9d6)
-![2024_12_04_0te_Kleki](https://github.com/user-attachments/assets/e5abc7b8-0bb9-46a8-82dc-259418e7dcd8)
+![2024_12_15_0x5_Kleki (1)](https://github.com/user-attachments/assets/38744d1f-23af-468e-9223-8700f40356e5)
+
 
 ! Basic DNI
 
@@ -30,7 +35,8 @@
 ! Hating my goat Tyler, the Creator
 
 ![2024_12_04_0t6_Kleki](https://github.com/user-attachments/assets/12dddc1b-a77c-49dd-b79e-1a1b2ba83157)
-![2024_12_04_0tl_Kleki](https://github.com/user-attachments/assets/aadb60ea-69d4-4dbc-95f3-6a275eae1c8c)
+![2024_12_15_0x5_Kleki (2)](https://github.com/user-attachments/assets/f3e4515b-e02d-49ea-ba85-16d2c6266b2c)
+
 
 ! South park
 
@@ -61,7 +67,8 @@
 ! Oneshot
 
 ![2024_12_04_0t6_Kleki](https://github.com/user-attachments/assets/12dddc1b-a77c-49dd-b79e-1a1b2ba83157)
-![2024_12_04_0tq_Kleki](https://github.com/user-attachments/assets/23eafa9e-bca5-4501-867c-0b067a230db4)
+![2024_12_15_0x6_Kleki](https://github.com/user-attachments/assets/cb40947d-b552-4cc6-8089-c192f94249f3)
+
 
 ! [𝗴𝘂𝗲𝘀𝘁𝗯𝗼𝗼𝗸](https://kriss0mwahh.atabook.org/)
 
