@@ -80,6 +80,7 @@
 
 ! [𝗶𝗻𝘀𝘁𝗮𝗴𝗿𝗮𝗺](https://www.instagram.com/kriss0mwahh/)
 
+! [pinterest](https://www.pinterest.com/Kriss0Mwahh/)
 
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=kriss0mwahh) !!!
 
