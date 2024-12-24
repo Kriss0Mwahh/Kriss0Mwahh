@@ -1,10 +1,12 @@
 
-![2024_12_15_0wx_Kleki](https://github.com/user-attachments/assets/9c167f98-b3da-4923-b06a-72cbcc232635)
+![2024_12_24_092_Kleki](https://github.com/user-attachments/assets/2f40854d-4174-4544-aa04-cd515920c9a0)
 
-![bec311ea59257ad0da22c5d8b3033c0e-ezgif com-overlay (1)](https://github.com/user-attachments/assets/9abac5cd-245a-49cf-8221-437a22d72c51)
 
-![2024_12_04_0t6_Kleki](https://github.com/user-attachments/assets/12dddc1b-a77c-49dd-b79e-1a1b2ba83157)
-![2024_12_15_0x5_Kleki](https://github.com/user-attachments/assets/384da594-cfd7-45db-9a8b-5817f789bab0)
+
+![2024_12_24_094_Kleki (1)](https://github.com/user-attachments/assets/a837fe42-e4fe-4871-b8f8-de2901749981)
+
+![2024_12_24_095_Kleki](https://github.com/user-attachments/assets/00128c2c-8c5b-4ec5-bf54-fd2601ad8c2e)
+
 
 
 
@@ -18,8 +20,10 @@
 
 ! Horrible at replying :heart_emoji: 
 
-![2024_12_04_0t6_Kleki](https://github.com/user-attachments/assets/70e4ca54-0af3-40e7-b41f-2a006fa1a9d6)
-![2024_12_15_0x5_Kleki (1)](https://github.com/user-attachments/assets/38744d1f-23af-468e-9223-8700f40356e5)
+![2024_12_24_094_Kleki (1)](https://github.com/user-attachments/assets/d0a26481-3acf-4842-9477-8e523538455b)
+![2024_12_24_095_Kleki (1)](https://github.com/user-attachments/assets/df4731bb-725f-4fc9-97aa-7bbed7036a52)
+
+
 
 
 ! Basic DNI
@@ -34,8 +38,10 @@
 
 ! Hating my goat Tyler, the Creator
 
-![2024_12_04_0t6_Kleki](https://github.com/user-attachments/assets/12dddc1b-a77c-49dd-b79e-1a1b2ba83157)
-![2024_12_15_0x5_Kleki (2)](https://github.com/user-attachments/assets/f3e4515b-e02d-49ea-ba85-16d2c6266b2c)
+![2024_12_24_094_Kleki (1)](https://github.com/user-attachments/assets/48118d95-38f5-41b0-aa49-0c8b75e510d0)
+![2024_12_24_095_Kleki (2)](https://github.com/user-attachments/assets/db8da7e4-ef0e-4c04-be92-be7066cd2c33)
+
+
 
 
 ! South park
@@ -66,8 +72,11 @@
 
 ! Oneshot
 
-![2024_12_04_0t6_Kleki](https://github.com/user-attachments/assets/12dddc1b-a77c-49dd-b79e-1a1b2ba83157)
-![2024_12_15_0x6_Kleki](https://github.com/user-attachments/assets/cb40947d-b552-4cc6-8089-c192f94249f3)
+![2024_12_24_094_Kleki (1)](https://github.com/user-attachments/assets/9b2be56f-c151-4236-9c01-1d7629cb155d)
+![2024_12_24_095_Kleki (3)](https://github.com/user-attachments/assets/aac829fa-d3de-4743-b4e5-022c13a91c78)
+
+
+
 
 
 ! [𝗴𝘂𝗲𝘀𝘁𝗯𝗼𝗼𝗸](https://kriss0mwahh.atabook.org/)
@@ -84,5 +93,5 @@
 
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=kriss0mwahh) !!!
 
-![2024_12_15_0x7_Kleki](https://github.com/user-attachments/assets/f859a5cd-b890-402f-bb41-2e6f886569ef)
+
 
