@@ -14,7 +14,7 @@
 
 ! Off-tab majority of the time.. dont kill me
 
-! Mostly with my boyfriend, do NOT hit on me brotha
+! doooonnt hit on me
 
 ! Avoid topics about substance abuse i beg
 
@@ -30,7 +30,7 @@
 
 ! Pro-ship
 
-! If you hit on me or my bf :thinks: ???
+! If you hit on me :thinks: ???
 
 ! Stupid on purpose 
 
