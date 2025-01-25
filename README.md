@@ -12,7 +12,6 @@ https://github.com/user-attachments/assets/68e0715c-f87b-4802-bb6b-7ccdc3142df3
 
 <p align="center"><b><a href="https://kriss0mwahh.straw.page/">strawpage</a> ‎ ‎‎ ‎‎ ‎‎ <a href="https://kriss0mwahh.atabook.org/">新book</a> ‎ ‎‎ ‎‎ ‎‎ <a href="https://www.pinterest.com/Kriss0Mwahh/">pinterest</a></b>
 
-<p align="center"><img src=https://krisres.carrd.co/assets/images/image01.png?v=d1717f42>
 
 <p align="center">────────────────────────────────────────────────────────────────────────<br>
 
