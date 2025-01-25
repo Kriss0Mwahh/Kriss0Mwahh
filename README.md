@@ -1,4 +1,4 @@
-<p align="center"> <img src="https://giffiles.alphacoders.com/248/24882.gif">
+<p align="center"> <img src="https://s3.ezgif.com/tmp/ezgif-3-4ef6ebd9e6.gif">
 
 <p align="center"> •┈୨♱୧┈• 
 
