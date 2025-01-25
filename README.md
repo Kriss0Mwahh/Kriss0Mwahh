@@ -1,4 +1,4 @@
-<p align="center"><img src=https://64.media.tumblr.com/bb485c79f3a573341df6e48332b4215e/0eeb2aa8fbc951dc-bb/s250x400/042b1d35aff19b02c446989f7e8548e2a4ccde1b.gifv>
+<p align="center"><img src=https://64.media.tumblr.com/836b728e08cad43cfc2db834fda9095f/0eeb2aa8fbc951dc-de/s100x200/67cce80c9ab667ea09a15439e5a77ce3b8737aa9.gifv>
 
 https://github.com/user-attachments/assets/68e0715c-f87b-4802-bb6b-7ccdc3142df3
 
