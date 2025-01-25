@@ -1,10 +1,8 @@
 
 
+https://github.com/user-attachments/assets/68e0715c-f87b-4802-bb6b-7ccdc3142df3
 
-https://github.com/user-attachments/assets/b280cb8c-541f-4a75-9f06-78af3a99db50
+![2025_01_25_075_Kleki (2)](https://github.com/user-attachments/assets/af52f07a-b710-4e2c-8b52-6b749f7de6ca)
 
 
 
-<p align="center"> •┈୨♱୧┈• 
-
-<p align="center"> 
